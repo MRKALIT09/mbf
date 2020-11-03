@@ -1,1 +1,1 @@
-# mbf
+# usaha tak menghianati hasil
